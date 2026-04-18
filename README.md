@@ -1,1 +1,0 @@
-# taichiwalking-fitness-app
